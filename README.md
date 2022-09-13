@@ -1,0 +1,2 @@
+# komitmen
+komitmen ngoding 
